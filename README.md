@@ -10,7 +10,7 @@ currently, i’m focused on **web experiments** and creating small, fun projects
 i don't have a favorite project so far — i love my projects all equally ૮ ․ ․ ྀིა  
 
 > disclaimer: i’m a **junior high student**, focusing on academics and personal life.  
-> this portfolio is mainly for fun — to show my skills and share what i’ve made. ‧₊˚ ┊  
+> im just here to show my skills and share what i’ve made. ‧₊˚ ┊  
 
 ---
 
@@ -40,3 +40,6 @@ here’s where you can find me online ✦
 
 ### 💻 my discord server / portfolio
 [**click here to join**](https://discord.gg/2Y5rFHYdf5)
+
+![Profile Views](https://komarev.com/ghpvc/?username=caatzz-z&color=ffb3c6)
+![GitHub followers](https://img.shields.io/github/followers/caatzz-z?style=social)
