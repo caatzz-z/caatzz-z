@@ -1,7 +1,7 @@
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔  
 # 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆 ! ── .✦
 
-hii, i’m **𝐤𝐞𝐢 ₊˚⊹** , she/her 
+hii, i’m **𝐤𝐞𝐢 ₊˚⊹** , she/her <br>
 i’m a self-taught coder who loves turning random ideas into working projects ✦  
 i mostly code for fun — experimenting, learning, and seeing what i can make next.
 
