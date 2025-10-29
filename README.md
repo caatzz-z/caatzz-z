@@ -1,5 +1,5 @@
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔  
-# 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆 ! ── .✦
+## 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆 ! ── .✦
 
 hii, i’m **𝐤𝐞𝐢 ₊˚⊹** , she/her <br>
 i’m a self-taught coder who loves turning random ideas into working projects ✦  
@@ -24,7 +24,7 @@ i don't have a favorite project so far — i love my projects all equally ૮ �
 
 ---
 
-# 𝒔𝒐𝒄𝒊𝒂𝒍𝒔 ! ── .✦  
+## 𝒔𝒐𝒄𝒊𝒂𝒍𝒔 ! ── .✦  
 here’s where you can find me online ✦  
 
 - ✦ **discord dm** : [caatzz](https://discord.com/users/1328319187210211390)
