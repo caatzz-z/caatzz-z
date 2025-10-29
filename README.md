@@ -40,6 +40,3 @@ here’s where you can find me online ✦
 
 ### 💻 my discord server / portfolio
 [**click here to join**](https://discord.gg/2Y5rFHYdf5)
-
-![Profile Views](https://komarev.com/ghpvc/?username=caatzz-z&color=ffb3c6)
-![GitHub followers](https://img.shields.io/github/followers/caatzz-z?style=social)
