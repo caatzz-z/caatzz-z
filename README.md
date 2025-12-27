@@ -27,11 +27,11 @@ i don't have a favorite project so far — i love my projects all equally ૮ �
 ## 𝒔𝒐𝒄𝒊𝒂𝒍𝒔 ! ── .✦  
 here’s where you can find me online ✦  
 
-- ✦ **discord dm** : [caatzz](https://discord.com/users/1328319187210211390)
+- ✦ **discord dm** : [sporkeii](https://discord.com/users/1328319187210211390)
 - ✦ **github** : [caatzz-z](https://github.com/caatzz-z)  
-- ✦ **tiktok** : [@..caatzz](https://www.tiktok.com/@..caatzz)  
-- ✦ **twitter** : [@xcaatzz](https://x.com/xcaatzz)  
-- ✦ **instagram** : [@caat.zz](https://www.instagram.com/caat.zz/)  
+- ✦ **tiktok** : [@sporkeii](https://www.tiktok.com/@sporkeii)  
+- ✦ **twitter** : [@sporkeii](https://x.com/sporkeii)  
+- ✦ **instagram** : [@sporkeii](https://www.instagram.com/sporkeii/)  
 - ✦ **roblox** : [catgoldcare](https://www.roblox.com/users/2441682066/profile)  
 
 ╰┈➤ 𝒂𝒍𝒍 𝒐𝒇 𝒕𝒉𝒆𝒔𝒆 𝒂𝒓𝒆 𝒎𝒚 𝒐𝒏𝒆 𝒂𝒏𝒅 𝑶𝑵𝑳𝒀 𝒐𝒇𝒇𝒊𝒄𝒊𝒂𝒍 𝒂𝒄𝒄𝒐𝒖𝒏𝒕𝒔 ✦  
